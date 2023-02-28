@@ -7,3 +7,9 @@ I am not respondible for any damage it will cause
 ====================================================
 
 Have fun!
+
+
+
+
+
+Hey dumbo, it's as fake as my girlfriend
